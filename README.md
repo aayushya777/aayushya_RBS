@@ -1,2 +1,2 @@
-# aayushya_RBSm,n,vasu the bitch of rbs
+# aayushya_RBSm,n
 
